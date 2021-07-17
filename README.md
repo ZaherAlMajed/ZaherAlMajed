@@ -7,7 +7,7 @@ I started my career with the belief that if you want to be a better designer you
 I believe in a holistic approach to your brand which includes a combination of strategic direction, marketing, design, and web development working together to uncover brand potential and opportunities to create exciting and emotionally resonant stories. This collaborative approach that I apply in my work provides a strong foundation leading to the design and development of what works in today’s market.
 Remember, Nothing Comes After Z.
 
-
+lll
 ---
 > # There are a million ways to express a single idea. The challenge is executing and focusing on the design that best delivers the message to the audience.
 --- 
