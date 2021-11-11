@@ -1,11 +1,6 @@
 # Zaher Al Majed
 ## The Man Behind the Beard
-It’s Zaher… Zaher Al Majed, I’m a visual arts designer living in the Kingdom of Bahrain. The beauty of things has been my passion for as far back as I can remember. I love envisioning a positive future and playing an active role in creating it. It’s my mission to help illuminate the way forward for brands, bringing their future into reality.
-
 I started my career with the belief that if you want to be a better designer you need to train your eye for creativity and constantly strive to achieve perfection. You need to be constantly up-to-date about what’s new out there, be it digital solutions, market trends, ground-breaking branding ideas, etc. My biggest strengths are my consistent determination to learn more, my passion to achieve anything I set my mind to and my love for all things digital.
-
-I believe in a holistic approach to your brand which includes a combination of strategic direction, marketing, design, and web development working together to uncover brand potential and opportunities to create exciting and emotionally resonant stories. This collaborative approach that I apply in my work provides a strong foundation leading to the design and development of what works in today’s market.
-Remember, Nothing Comes After Z.
 
 ---
 > # There are a million ways to express a single idea. The challenge is executing and focusing on the design that best delivers the message to the audience.
