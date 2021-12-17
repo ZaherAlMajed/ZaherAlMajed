@@ -1,7 +1,10 @@
 # Zaher Al Majed
 ## The Man Behind the Beard
-I started my career with the belief that if you want to be a better designer you need to train your eye for creativity and constantly strive to achieve perfection. You need to be constantly up-to-date about what’s new out there, be it digital solutions, market trends, ground-breaking branding ideas, etc. My biggest strengths are my consistent determination to learn more, my passion to achieve anything I set my mind to and my love for all things digital.
+My name is Zaher Al Majed, and I'm a Bahrain-based self-taught multi-dimensional designer & coder with plenty of years of experience in creating design solutions for various platforms and media.
 
+I also lecture & speak on professional practice in art & design and have delivered sessions on design and creativity to a wide range of audiences, from graphic design students to professionals.
+
+I started my career with the belief that if you want to be a better designer, you need to train your eye for creativity and constantly strive to achieve perfection. You need to be constantly up-to-date about what’s new out there, be it digital solutions, market trends, ground-breaking branding ideas, etc. My biggest strengths are my consistent determination to learn more, my passion to achieve anything I set my mind to.
 ---
 > # There are a million ways to express a single idea. The challenge is executing and focusing on the design that best delivers the message to the audience.
 --- 
