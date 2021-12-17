@@ -26,7 +26,7 @@ I started my career with the belief that if you want to be a better designer, yo
 >`Imran Al Aradi - Radio Bahrain`
 
 > #### Zaher is a very likable and talented young professional who skillfully mixes creativity with charm and coolness. He always adds value by challenging the brief and wearing a smile, but most importantly he delivers great quality. 
->`Richard Hicks - Eradah Capital`
+>`Richard Hicks - Azured Marketing`
 
 > #### One of few who are talent in graphic and web design with solid development experience enjoyed exploring new ideas and solutions with him. Definitely a valuable asset to any organization!
 
@@ -38,7 +38,7 @@ I started my career with the belief that if you want to be a better designer, yo
 
 > #### Zaher was delightful to work with! he always gave his expert opinion whenever we needed it. He made time to always check on the work and make sure we are satisfied with it. I recommend you work with him for his level of intelligence and expertise in design and marketing.
 
->`Huda AlHawaj - MSL`
+>`Huda AlHawaj - Kitopi`
 
 > #### When it comes to creativity and speed, Zaher is always the first choice. No matter when you contact him or where he is, he always has his tools with him and ready to work.
 
