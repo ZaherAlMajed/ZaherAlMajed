@@ -55,6 +55,10 @@ I started my career with the belief that if you want to be a better designer, yo
 > #### Zaher is a very talented and creative designer. During his work in Ideas Holding Group he worked closely with our clients to develop and enhance their branding and creative work. I highly recommend Zaher for high profile branding and create work.
 
 >`Jaleel Al Sharaf - Ideas Holding Group`
+
+> #### Zaher is wonderfully creative and responsive. He translates ideas into beautiful visuals, and he does so in a timely and professional manner. He is highly recommended.
+
+>`Mohamed AlQassimi - National Bank of Bahrain`
 ---
 
 ## Clients
